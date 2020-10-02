@@ -5,3 +5,4 @@
 3. Akshit Bisht - http://akshitbisht.me/
 4. Nikita Nandankar - not yet
 5. Mansi Bhalerao - not yet
+6. Jatin Shukla - not yet
